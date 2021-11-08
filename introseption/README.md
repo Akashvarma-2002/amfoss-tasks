@@ -1,2 +1,3 @@
 # INTROSEPTION
 ### Why we must choose you ?
+I'm an AIE student and at the time of joining this group at first I'm little bit confused and I'm not aware of any thing abiut this clubs and all the things. But after completing my S1 I got clarity that coding is my future and I want to get more knoledge in coding. To get the knoledge and the guidence for my future and for my resume to be the best I thought joining this club will be the best way. So, my current dream is to get expert in coding. So, I'm very clear about what I'm ngoing to persue. So I can say that because of my desire you can choose me.
