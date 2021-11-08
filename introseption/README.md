@@ -6,4 +6,4 @@ After seeing this tasks and the recruitment pipeline I thought I must learn some
 ### How do you contribute back to this club ?
 If I get recruited to this club I'll try to put my all efforts how to develope this club and try to do the works given by the club members perfects withput any errors and I'll try to work more that my limits and try to become a part to develope this club.
 ### Do you have any feedback for the selection process?
-I dont have any sugessions because this selection process is the best ever selection process I've ever seen. Because from this selection process itself we are aquring the prerequsitres or some prior knoledge to entre this club.
+I dont have any sugessions because this selection process is the best ever selection process I've ever seen. Because from this selection process itself we are aquring the prerequsitres or some prior knoledge to entre this club....
