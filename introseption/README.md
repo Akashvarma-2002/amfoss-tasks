@@ -5,3 +5,5 @@ I'm an AIE student and at the time of joining this group at first I'm little bit
 After seeing this tasks and the recruitment pipeline I thought I must learn some more things regarding github, git, some extra concepts on coding in some particular language. I'm confident that I can give my best to get recruited into this club. So, my present goal is to join this club. After joining this club I'll try to improve my coding skills. So, my current plan is to get recruited into this club. 
 ### How do you contribute back to this club ?
 If I get recruited to this club I'll try to put my all efforts how to develope this club and try to do the works given by the club members perfects withput any errors and I'll try to work more that my limits and try to become a part to develope this club.
+### Do you have any feedback for the selection process?
+I dont have any sugessions because this selection process is the best ever selection process I've ever seen. Because from this selection process itself we are aquring the prerequsitres or some prior knoledge to entre this club.
